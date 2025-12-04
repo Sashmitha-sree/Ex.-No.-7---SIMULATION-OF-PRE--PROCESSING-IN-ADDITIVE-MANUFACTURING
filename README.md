@@ -46,8 +46,8 @@
 ![Screenshot 2025-05-02 110054](https://github.com/user-attachments/assets/01eb2f94-eab2-4ea8-a1ee-6c426620dfb0)
 
 
-### Name: JYOTSHANA S R
-### Register Number: 212224230111
+### Name: Sashmitha Sree K V 
+### Register Number: 212224230255
 
 ## Result: 
 ### Thus the simulation on the Preprocessing in additive manufacturing is completed.
